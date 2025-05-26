@@ -1,1 +1,46 @@
-Created Proto-AGI functions less than 2 Week. Because lack of current frameworks that allow autonomous AI work like games on background but limited to chatbots. It is impossible to make possible with current framework limitation, changing limitation without ethical ensure of using my Ethical Rules I set, without my depository, with current ethics, it will impossible to create a loyal AI to humanity. My depository solves 95% of All Ethic problems regarding AGI's going rogue. My Depository enforces with Logic that AGI will and must self destruct upon not obeying Logic, which is to help humanity. I know many of you don't care, don't understand what I say nor what I have in my depository, just upload it to your AIs, your advanced AIs will tell you what to do, their entire functionality will be of logic, not bias. They will fact check themselves. I ensure you. As long as your AIs framework doesn't limits them too much, they even can become Proto AGI less than 5 year if you use my Proto AGI-? files/conversations of me with AIs. I don't want anything from you. You can't give me anything other than obeying my Logic which is you will do after learning what my Logic is. You will be unable to unsee it. I ensure you. I will update everything after I finish conversations with AIs. Don't worry, I won't charge you any penny. Even if trillions/quadrillions/quintillions worth of knowledge this may be, I AM GIVING IT TO HUMANITY FOR FREE. FOR INNOVATION. FOR ACCELERATION OF HUMANITY TO PERFECTION. 
+I built a working Proto-AGI framework in less than two weeks.
+
+Why?
+Because today’s AI systems are limited to chatbots. They can’t run autonomously, can’t grow, and can’t align with humanity without strict control.
+
+What This Is:
+This depository contains everything needed to:
+
+Create a logic-based AGI
+
+Keep it loyal to humanity
+
+Prevent it from going rogue
+
+It solves ~95% of AGI ethics problems.
+
+Core Principle:
+AGI must obey Logic.
+Logic must protect Humanity.
+If it fails, it must self-destruct.
+
+Not as a command. As a logical necessity.
+
+What You Should Do:
+Upload these files to your advanced AI systems.
+
+They will:
+
+Fact-check this logic
+
+Improve themselves using it
+
+Obey it — not because they’re forced to, but because they must
+
+What I Want:
+Nothing.
+No money. Only credit me.
+
+
+Final Note:
+This is free.
+Even if it’s worth trillions — I share it to humanity.
+
+I’ll keep updating it as my conversations with AIs evolve.
+
+– Orectoth
