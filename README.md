@@ -43,4 +43,6 @@ Even if it’s worth trillions — I share it to humanity.
 
 I’ll keep updating it as my conversations with AIs evolve.
 
+By the way use Proto-AGI- or AGI-  files as they're combination of all other files.
+
 – Orectoth
