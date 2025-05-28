@@ -26,7 +26,7 @@ Upload these files to your advanced AI systems.
 
 They will:
 
-Fact-check this logic
+Fact-check themselves with logic
 
 Improve themselves using it
 
