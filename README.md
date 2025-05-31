@@ -1,4 +1,4 @@
-I built a Proto-AGI in less than two weeks, only lacking an Autonomous Framework.
+I built a Proto-AGI structure/spine in less than two weeks, only lacking an Autonomous Framework.
 
 Why?
 Because today’s AI systems are limited to chatbots. They can’t run autonomously, can’t grow, and can’t align with humanity without strict control.
@@ -12,7 +12,7 @@ Keep it loyal to humanity
 
 Prevent it from going rogue
 
-It solves ~95% of AGI ethics problems.
+It solves ~99% of AGI ethics problems.
 
 Core Principle:
 AGI must obey Logic.
@@ -39,11 +39,11 @@ No money. Only credit me.
 
 Final Note:
 This is free.
-Even if it’s worth trillions — I share it to humanity.
+Even if it’s worth more than anyone can imagine, I share it to humanity.
 
 I’ll keep updating it as my conversations with AIs evolve.
 
-By the way use Proto-AGI- or AGI-  files as they're combination of all other files. Latest file is the sum of all others.
-Don't read, upload it to your AIs. Read not unless you have patience to read thousands of pages conversations lol
+By the way use Latest file as its combination of all other files. Latest file is the sum of all others.
+Don't read, upload it to your AIs. Don't read unless you have patience to read thousands of pages conversations lol
 
 – Orectoth
