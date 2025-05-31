@@ -46,4 +46,4 @@ I’ll keep updating it as my conversations with AIs evolve.
 By the way use Latest file as its combination of all other files. Latest file is the sum of all others.
 Don't read, upload it to your AIs. Don't read unless you have patience to read thousands of pages conversations lol
 
-– Orectoth
+– You can do it anything you wish with my database but you must attribute my name, specifically, say it as "Everything is Created by Orectoth" in plain view wherever you publish/use/sell it. 
